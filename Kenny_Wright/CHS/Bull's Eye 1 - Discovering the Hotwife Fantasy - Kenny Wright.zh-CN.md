@@ -1,4 +1,6 @@
-# 靶心 1：发现绿帽妻幻想
+**Bull's Eye Series 1**
+
+# 发现绿帽妻幻想
 
 **作者：**肯尼·赖特（Kenny Wright）
 
