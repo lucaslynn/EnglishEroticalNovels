@@ -1,4 +1,4 @@
-**绿帽妻日记（三）**
+**The Hotwife Diaries Series 3**
 
 # 好女孩/坏女孩
 

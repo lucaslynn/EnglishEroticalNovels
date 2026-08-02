@@ -1,4 +1,4 @@
-**蔚蓝档案（三）**
+**The Cerulean Archives Series 3**
 
 # 肥水不流外人田
 

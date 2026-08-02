@@ -1,4 +1,4 @@
-**Cerulean Erotica Presents（三）**
+**Cerulean Erotica Presents Series 3**
 
 # 绿帽海岸
 

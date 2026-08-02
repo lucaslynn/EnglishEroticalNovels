@@ -1,4 +1,4 @@
-**绿帽丈夫合集（一）**
+**The Cuckold Collection Series 1**
 
 # 尺寸很重要
 

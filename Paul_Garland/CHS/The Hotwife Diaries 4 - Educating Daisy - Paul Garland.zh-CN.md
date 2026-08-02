@@ -1,4 +1,4 @@
-**绿帽妻日记（四）**
+**The Hotwife Diaries Series 4**
 
 # 教导黛西
 

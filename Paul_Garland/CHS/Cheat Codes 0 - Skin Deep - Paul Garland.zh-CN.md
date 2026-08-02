@@ -1,4 +1,4 @@
-**作弊代码（零）**
+**Cheat Codes Series 0**
 
 # Skin Deep
 

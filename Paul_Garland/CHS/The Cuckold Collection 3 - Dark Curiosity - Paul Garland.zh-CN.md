@@ -1,4 +1,4 @@
-**绿帽丈夫合集（三）**
+**The Cuckold Collection Series 3**
 
 # 隐秘的好奇心
 

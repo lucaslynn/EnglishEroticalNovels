@@ -1,4 +1,4 @@
-**绿帽丈夫合集（五之二）**
+**The Cuckold Collection Series 5-2**
 
 # 全区通行：《拒绝进入》删减章节
 

@@ -1,4 +1,4 @@
-**黑猫俱乐部故事（一）**
+**Tales of the Black Cat Club Series 1**
 
 # 吃到奶油的猫
 

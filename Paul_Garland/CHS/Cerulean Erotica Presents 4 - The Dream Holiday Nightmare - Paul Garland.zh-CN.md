@@ -1,4 +1,4 @@
-**Cerulean Erotica Presents（四）**
+**Cerulean Erotica Presents Series 4**
 
 # 梦幻假期噩梦
 

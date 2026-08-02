@@ -1,4 +1,4 @@
-**假日绿帽妻（一之二）**
+**Holiday Hotwives Series 1-2**
 
 # 蒂娜：再次为团队献身
 

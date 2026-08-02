@@ -1,4 +1,4 @@
-**作弊代码（二）**
+**Cheat Codes Series 2**
 
 # 硬核
 

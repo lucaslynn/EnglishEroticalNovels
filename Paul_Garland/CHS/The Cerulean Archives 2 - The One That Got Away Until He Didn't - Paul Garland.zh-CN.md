@@ -1,4 +1,4 @@
-**蔚蓝档案（二）**
+**The Cerulean Archives Series 2**
 
 # 曾经错过的那个人……直到他不再错过：一个绿帽妻故事
 

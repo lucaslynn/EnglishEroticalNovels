@@ -1,4 +1,4 @@
-**作弊代码（三）**
+**Cheat Codes Series 3**
 
 # 安全词
 

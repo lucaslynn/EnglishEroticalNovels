@@ -1,4 +1,4 @@
-**黑猫俱乐部故事（三）**
+**Tales of the Black Cat Club Series 3**
 
 # 猫捉老鼠
 
